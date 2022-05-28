@@ -8,3 +8,5 @@ Am I supposed to write more about myself here or?? Again I dunno what I'm doing 
 turbotoon90/turbotoon90 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
+![IMG_7346](https://user-images.githubusercontent.com/106413333/170802563-9f2e8253-cb00-46d5-9f29-56a0de288bd0.JPG)
+![IMG_7209](https://user-images.githubusercontent.com/106413333/170802583-f34407e5-0eb6-426f-af25-d3197d1b67ad.JPG)
